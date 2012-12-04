@@ -18,22 +18,22 @@ So today I wrote the poem. For the record, I don't think the weather sucks. Arti
     And so I did, but pulled some back muscle
     as well
 
-    Understandably I was pretty pissed. <---------|
-                                                  |
-    and this guy next to me was doing deadlift    |
-    singles                                       |
-    with 180                                      |
-    185                                           |
-    or so.                                        |
-    taking                                        |
-    l o n g                                       |
-    5 minute                                      |
-                                                  |
-    pauses                                        |
-                                                  |
-    like pulling a fucking world record.          |
-                                                  |
-    So I decided to take it out on deadlifts. ----|
+    Understandably I was pretty pissed.
+                                      
+    and this guy next to me was doing deadlift
+    singles
+    with 180
+    185
+    or so.
+    taking
+    l o n g
+    5 minute
+                                              
+    pauses
+                                              
+    like pulling a fucking world record.
+                                              
+    So I decided to take it out on deadlifts.
 
     I pulled 100, 140, 150, 160 kg
     with no rest, just taking the time to add the plates.
